@@ -1,7 +1,7 @@
 # fleetmanagement
 # 5 Benefits of Implementing Electric Scooters in Your Fleet
 
-Welcome to the dynamic world of fleet management, where efficiency and cost-effectiveness are paramount. As the transportation landscape evolves, **[Electric Scooters](https://numerosmotors.com)** are emerging as a game-changer for businesses seeking modern, sustainable mobility solutions. This guide explores the multifaceted advantages of incorporating electric scooters into your fleet.
+Welcome to the dynamic world of fleet management, where efficiency and cost-effectiveness are paramount. As the transportation landscape evolves, **[Electric Scooters](https://www.numerosmotors.com/product/)** are emerging as a game-changer for businesses seeking modern, sustainable mobility solutions. This guide explores the multifaceted advantages of incorporating electric scooters into your fleet.
 
 ## Advantages of Electric Scooters in Fleet Management
 
